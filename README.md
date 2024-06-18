@@ -1,6 +1,6 @@
-https://youtu.be/TNJ1UvIv7CA
+ Introduction video: https://youtu.be/TNJ1UvIv7CA
 
 
 
 
-https://youtu.be/6-tclEvGhv8
+Technology video: https://youtu.be/6-tclEvGhv8
